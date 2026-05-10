@@ -1,5 +1,5 @@
 # Gaurav Muskan
-> ⚠️This site is Deprecated, please visit our new site with the below link
+> ⚠️This site is Deprecated & permanently closed, please visit our new site with the below link
 <hr>
 Hosted on:
 <br>
